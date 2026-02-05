@@ -1,2 +1,0 @@
-# BELAJAR-GIT-
-Pelajar pplg
